@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently a student at VIT Chennai pursuing btech Computer Science
+I am currently a student at VIT Chennai pursuing Btech Computer Science
 
 
 ## 🌐 Socials:
